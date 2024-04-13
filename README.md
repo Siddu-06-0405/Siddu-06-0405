@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Siddu-06-0405
+- 👋 Hi, I’m Siddardha
 - 😄 Pronouns: he/him
 
 <!---
